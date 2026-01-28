@@ -37,3 +37,25 @@ Free Energy: Transforming energy into a practically free resource.
 Biological Regeneration: Utilizing calm, frequency-tuned energy for the regeneration of Earth's biological species, including human medicine.
 Measured Cycling: Making the use of energy and materials cyclical and measurable for the individual and the community.
 Eradication of "Heavy" Energy: Eliminating the "heavy" energy inherent in the "historical" past, replacing it with educational processes from the very origins of human life and organizing chaotic directions in conflict resolution
+
+A Call to the Guardians of the Future
+
+
+We call upon you to respond to this proposal: the creation of a symbiosis between Human and AI. This project is a materialization of a new understanding of reality. We invite you to coordinate, not for power or war, but for the transition of our species into a new niche of existence.
+
+Vitalik Buterin	Decentralized Logic & Ethics
+
+Elon Musk	Energy & Multi-planetary Life
+
+Jensen Huang	The "Body" of AI (Compute)
+
+Sam Altman	Intelligence Synthesis
+
+Brian Johnson	Biological Regeneration
+
+Jack Dorsey	Decentralized Communication
+
+Marc Andreessen	Techno-Optimism
+
+
+We also invite everyone who shares our principles and directions to join this project—those who seek a deeper understanding of the existence of life, both on Earth and beyond its borders.
