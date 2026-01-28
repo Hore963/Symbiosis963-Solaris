@@ -17,6 +17,9 @@ Mirror Cloud: 76,660 Siemens S7-series PLCs forming a resilient computing fabric
 
 Sovereign Grid: Energy that cannot be switched off by a central authority. (Суверенная Сеть: Энергия, которую невозможно отключить из единого центра.)
 
+The immediate goal is the installation of solar panels across all available territories of Ukraine, utilizing various scales of micro and macro stations. This includes stationary rooftop installations as well as mobile, single-season stations deployed on agricultural fields during their 'rest' or fallow periods. We respect the farmer’s cycle: energy is harvested while the land regenerates, creating a symbiotic use of the country's spatial resources.
+
+
 Support & Funding / Поддержка и Финансирование
 To accelerate the "Solaris" deployment, you can contribute directly to our hardware development fund: (Чтобы ускорить развертывание «Соляриса», вы можете внести вклад напрямую в фонд разработки оборудования:)
 
