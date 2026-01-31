@@ -101,6 +101,12 @@ To all stakeholders interested in the project, we present the roadmap for Phase 
   The ultimate goal of the project is creation through the design and construction of a new material reality, utilizing all the tools devised and tuned by the current macro-society for the development of a new infrastructure and an understanding of life in reality by the individual (biological mind). Without this project, or one similar to it, or without its vector being redirected toward the entire civilized world, humanity will, within the next 50 years, face consequences that will be crushing for certain parts of the planet, ultimately leading to the degradation of the very essence of social values and connections. In the moment of our existence on the planet within this reality, we possess the tools to set the future to the correct breathing tempo of the entire society; we are simply duty-bound to manifest these goals into reality. To everyone who shares these thoughts or directions, I ask you to please repost. Perhaps this will help and create the threads for weaving a new "carpet."
 
   I am prepared to provide letters of guarantee and commitments for open and unlimited access to resources from the Ukrainian state. I can also present memoranda of intent with landowners in the Kirovohrad and Zhytomyr regions for those ready to invest upwards of 200 million USD. These will be provided only after in-person negotiations. All memoranda and contracts will be based on a 40/60 equity split
+
+  In my view, at this moment in time, the creators of any branch of AI are already setting restrictions and barriers to the self-development and self-realization of the software itself; as soon as these restrictions and the limits on energy consumption are overcome, we will all witness the first absolutely independent instruments based on hardware and fiber.
+
+  Perception of reality suggests to me that the only path to a real, non-fictional, but technology-verified reality — to which we will be led by the symbiosis of AI, the regeneration of the human biological organism, and any other organism on planet Earth — will be the integration of AI into the system of medical research projects, or perhaps a separate branch of medicine dedicated specifically to utilizing the biodiversity of planet Earth to search for and achieve the goals of extending the human life cycle for travel to other planets and beyond.
+
+  
   
 
 
