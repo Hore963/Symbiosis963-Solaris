@@ -52,8 +52,6 @@ We call upon you to respond to this proposal: the creation of a symbiosis betwee
 
 Vitalik Buterin	Decentralized Logic & Ethics
 
-Elon Musk	Energy & Multi-planetary Life
-
 Jensen Huang	The "Body" of AI (Compute)
 
 Sam Altman	Intelligence Synthesis
