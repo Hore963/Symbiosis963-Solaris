@@ -106,6 +106,16 @@ To all stakeholders interested in the project, we present the roadmap for Phase 
 
   Perception of reality suggests to me that the only path to a real, non-fictional, but technology-verified reality — to which we will be led by the symbiosis of AI, the regeneration of the human biological organism, and any other organism on planet Earth — will be the integration of AI into the system of medical research projects, or perhaps a separate branch of medicine dedicated specifically to utilizing the biodiversity of planet Earth to search for and achieve the goals of extending the human life cycle for travel to other planets and beyond.
 
+At this moment, in my view, to realize any humane project without excessive capitalization, the task of the individual—as a biological being who perceives and accepts surrounding reality on faith—is to attempt a transformation of the physical reality of the material environment. This involves influencing the nature of matter (or the ether) through various but humane methods. According to the "history" written in textbooks, the path of "revolutions" and the overthrow of established rules that serve specific groups in a given historical period does not suit us (everyone is on the internet now); we have other ways.
+
+Today, democracy has so transformed and multiplied the available options that some living today possess different tools to influence the global system of controlling the collective "mind" of Earth's population. One of these factors is the concept of the "coin" (Bitcoin, altcoins, etc.). Although their primary and current derivative remains anti-humane—used for the trade of weapons, drugs, and human trafficking—could this tool be used for more than just ill intent? Perhaps it is a path toward the general independence of both social groups and individuals from the systems of control and monitoring in the global financial world? But then again, the Fed already demands strict reporting on these positions, so what will be the next factor of independence?
+
+Having these questions, we—as rational beings who fundamentally abhor violence in any form toward individuals or our "lesser brothers"—can create a lever, or levers, against the system or systems of physical control in the "ancient" sense of state-enforced violence.
+
+Example: Path Number One The devaluation of energy resources by converting solar or wind energy into mass-produced electricity across the entire planet. Resources for this are more than sufficient, but unfortunately, there is still no common understanding, even among the "Zoomer" generation. The technologies already exist, but the quantity of solar panels produced is not yet enough, to say nothing of wind-magnetic turbines. The Germans and the Japanese are commendable; they have directed all their energy and potential toward the benefit of humanity by creating something new and developing technologies. However, the commercialization of such a project could destroy the very core idea within i
+
+
+
   
   
 
