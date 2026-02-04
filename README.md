@@ -113,6 +113,8 @@ Having these questions, we—as rational beings who fundamentally abhor violence
 Example: Path Number One The devaluation of energy resources by converting solar or wind energy into mass-produced electricity across the entire planet. Resources for this are more than sufficient, but unfortunately, there is still no common understanding, even among the "Zoomer" generation. The technologies already exist, but the quantity of solar panels produced is not yet enough, to say nothing of wind-magnetic turbines. The Germans and the Japanese are commendable; they have directed all their energy and potential toward the benefit of humanity by creating something new and developing technologies. However, the commercialization of such a project could destroy the very core idea within i
 
 
+я здесь постоянно ближайшие 19 лет в режиме ожидания готов!!!!!!!!!
+
 
   
   
