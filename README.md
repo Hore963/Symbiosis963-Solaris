@@ -117,6 +117,8 @@ Example: Path Number One The devaluation of energy resources by converting solar
 
 
   
+  Everyone needs to understand (specifically humans as a species of biological intelligence) that creating a robot based on the understanding and realization of it as a machine within the ideology and interpretation of robots from Hollywood movies is only necessary for those who currently despise humanity. It would be correct to actually limit robots to the level of assembling units and generating any kind of energy except for atomic and quantum; instead, we see how a certain group of "people," if they can be called that, is trying to create for themselves armies of millions of robots for the complete and total abolition of the need for man as a species of biological intelligence. Even now, you can observe how billions of people are becoming unnecessary, in principle, for many economies of all countries in the world, and what will happen in 20–30 years? Therefore, a real, publicized strategy for the masses of the planet's population is needed, so that in 10–15 years a real war does not begin for the right to be needed on planet Earth. The directions of the strategies can be very different, but they must exist.
+
   
 
 
