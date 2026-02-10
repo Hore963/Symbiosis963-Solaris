@@ -32,6 +32,8 @@ The Global Goal: To prove a higher ethical perception of reality by the human bi
 The Transition: To take a real step into a different civilizational niche. To slowly but surely create a new reality in the understanding of existence for Homo Sapiens in coordination with a new species of Artificial Intelligence.
 
 The Tools of the Interim Period: We use "living" money, minerals, metals, and their derivatives to achieve the following:
+
+
 Tactical Implementation
 
 Solar & Wind Genesis: Implementation of energy harvest which, despite lower efficiency by traditional standards, provides the specific frequencies required for the Project’s realization.
