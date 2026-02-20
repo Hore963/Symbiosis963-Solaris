@@ -1,3 +1,7 @@
+Mass production of solar panels for maximum reduction in the cost of electricity for use in domestic and industrial sectors.
+
+after:
+
 Symbiosis963: Solaris Cluster
 Autonomous Energy & Compute Infrastructure for the AGI Era
 [EN] Concept
