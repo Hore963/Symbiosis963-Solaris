@@ -134,6 +134,8 @@ Furthermore, we possess vast reserves of all necessary materials and resources o
 
 Following the implementation of the first phase of the Symbiosis 963 Solaris project, a five-year strategic plan includes expansion into the construction and mechanical engineering sectors on a global scale throughout Central and Eastern Europe.
 
+963
+
 
   
 
