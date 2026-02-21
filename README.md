@@ -132,6 +132,8 @@ The immediate goal is the installation of solar panels across the entire availab
 
 Furthermore, we possess vast reserves of all necessary materials and resources on the territory of Ukraine to bring this project to life, but we currently lack the actual financial instruments for the start. To begin the real extraction and assembly of the first solar panels, we require approximately 390 million USD. Production sites, labor force, political will, and the approval of the local population are all present; what is missing at this moment are only the financial instruments and high-tech equipment from Germany or Japan for cutting and assembling the panels. We are prepared to consider a project of full control—both financial and physical—by the sponsors, as well as full control of the project regarding company ownership by the sponsor (but under no circumstances a sale to third parties within 25 years from the moment the actual project is established in reality). The total project investment portfolio, according to preliminary estimates, will amount to 3 billion USD as of February 2026.
 
+Following the implementation of the first phase of the Symbiosis 963 Solaris project, a five-year strategic plan includes expansion into the construction and mechanical engineering sectors on a global scale throughout Central and Eastern Europe.
+
 
   
 
